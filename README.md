@@ -1,1 +1,1 @@
-# SNAi-NFT
+# SNA
